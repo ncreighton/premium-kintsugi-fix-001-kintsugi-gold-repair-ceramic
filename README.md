@@ -1,0 +1,2 @@
+# premium-kintsugi-fix-001-kintsugi-gold-repair-ceramic
+That cracked ceramic bowl your grandmother gave you—you can't bear to throw it away, but traditional glue just feels wrong. You want to honor its history, not hide the break.  Kintsugi Gold Repair &amp; Ceramic Bond Craft Lab turns your Notion into a dedicated workshop for the ancient art of golden repair. It provides a structured system to log each pi
